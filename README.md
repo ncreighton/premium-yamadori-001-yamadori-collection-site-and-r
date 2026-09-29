@@ -1,0 +1,2 @@
+# premium-yamadori-001-yamadori-collection-site-and-r
+Stop losing your prized yamadori locations and recovery data across scraps of paper or scattered notes. The Yamadori Collection Site and Recovery Record is the only Notion template designed to track every aspect of your yamadori journey—from the moment you spot a wild tree to its full recovery in your garden.  This template eliminates the chaos of
